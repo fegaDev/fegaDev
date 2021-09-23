@@ -1,1 +1,1 @@
-Just try to be the besto :)
+Just try to be the best :)
